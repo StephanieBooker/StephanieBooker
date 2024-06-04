@@ -2,7 +2,7 @@
 - 👀 I’m interested in project management 
 - 🌱 I’m currently learning agile management methodologies 
 - 💞️ I’m looking to collaborate on job seeking
-- 📫 How to reach me 1stephaniebooker@gmail.com
+- 📫 How to reach me 
 - 😄 Pronouns: she/her/hers
 - ⚡ Fun fact: I love carmel macchiatos
 
